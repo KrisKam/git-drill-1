@@ -1,0 +1,1 @@
+"After all, tomorrow is another day!" - Gone with the Wind
